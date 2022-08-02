@@ -1,0 +1,1 @@
+dpm for stock
